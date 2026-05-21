@@ -1,1 +1,0 @@
-# ParaMi_Amorr
